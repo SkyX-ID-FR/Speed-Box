@@ -8,7 +8,8 @@ Sur Speed-Box, vous retrouverez ⬇
 
 Le site web est dès maintenant disponible à cette URL : https://speed-hck.000webhostapp.com/<br>
 ⚠ Vous n'avez le droit de pirater que chaque page correspondant au challenge que vous voulez faire !! ⚠<br>
+
 Pour toute améliorations ou remarques, n'hésitez pas à me contactez sur mon email <skyx-fr@pm.me> 😉 !<br>
 
-@+ and enjoy about hacking !
-By SkyX [ID FR] **_**
+@+ and enjoy about hacking !<br>
+By SkyX..
